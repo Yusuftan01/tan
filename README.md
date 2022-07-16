@@ -1,0 +1,2 @@
+# tan
+Mavi tik istiyorum 
